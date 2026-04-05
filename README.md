@@ -1,1 +1,0 @@
-# bazaar-o-nomics-invitation
